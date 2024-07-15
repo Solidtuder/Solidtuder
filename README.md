@@ -1,0 +1,2 @@
+- 👋 Hi, I’m @Solidtuder
+- 🌱 I’m currently learning how to code(failing)
